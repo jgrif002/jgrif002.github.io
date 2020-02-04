@@ -17,6 +17,7 @@ We’re seeing a huge tech push from traditional powerhouses and startups #disru
 I realized I truly love trucking and the company I work for.  I want to be able to help create the foundation that this company can build on and continually improve moving into the future.  I want to be continually challenged. I want to be required to keep developing and learning as a professional.  This is my next step.  This is where I belong and I know that now. Everything I’ve done has led me to this.  I can’t wait to explore the challenges that I know are ahead of me. It’s not going to be easy but Kobe said it best “The dream is not the destination, it is the journey.  The journey is the dream.” 
 
 #ThisIsTheWay
+
 Jesse G.
 
 
