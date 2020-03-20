@@ -1,7 +1,7 @@
 ---
 layout: post
-title:      "CLIproject	“The Pokemon Card Game - Base Set”"
-date:       2020-03-20 04:02:05 +0000
+title:      "CLI project	“The Pokemon Card Game - Base Set”"
+date:       2020-03-20 00:02:06 -0400
 permalink:  cliproject_the_pokemon_card_game_-_base_set
 ---
 
